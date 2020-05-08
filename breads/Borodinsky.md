@@ -74,10 +74,6 @@ other. People are cowards.
    550F for 10 minutes. Remove the steam tray, cover the loaf with aluminum foil, and
    reduce the oven temperature to 350F. Bake for 45-50 minutes. Pull out the Pullman pan,
    pull the loaf from the Pullman loaf pan, and return the loaf to the oven to get the
-   sides and bottom a little more colorwater into your steam tray, and put the loaf in.
-   Bake with steam at 550F for 10 minutes. Remove the steam tray, cover the loaf with
-   aluminum foil, and reduce the oven temperature to 350F. Bake for 45-50 minutes. Pull
-   out the Pullman pan, pull the loaf from the Pullman loaf pan, and return the loaf to
-   the oven to get the sides and bottom a little more color. Bake until the loaf makes a
+   sides and bottom a little more color. Bake until the loaf makes a
    thump sound when you tap it on the bottom and the internal temperature measures at
    least 198F, 10-15m. Transfer to a rack and let cool completely before slicing.
