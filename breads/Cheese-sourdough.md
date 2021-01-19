@@ -58,5 +58,3 @@ based on Peter Beinart's basic sourdough, from "The Bread Baker's Apprentice" pp
    Bake 10-20 minutes more, until they hit 205F/96C in the center, are a golden brown, and
    sound hollow when you tap the bottom.
 1. Let cool 1hr before serving.
-   the bottom of the oven
-
