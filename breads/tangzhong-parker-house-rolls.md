@@ -15,7 +15,7 @@ modified from https://www.kingarthurbaking.com/recipes/parker-house-rolls-recipe
 
 
 ## Directions
-1. Take the 20g of flour and 100g of milk and tangzhong it.
+1. Take the 20g of flour and 100g of milk and tangzhong it. Add the milk and flour to a small saucepan over medium heat, whisking them together. Stir constantly, until it starts to thicken and form a paste -- should only take a minute.
 
 1. In the bowl of an electric mixer, combine all of the ingredients (except the 3 1/2 to 4 tablespoons (50 to 57g) melted butter at the end), mixing to form a shaggy dough.
 
